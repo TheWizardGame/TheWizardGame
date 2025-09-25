@@ -41,8 +41,9 @@ TikTok: https://tiktok.com/@thewizardgame
 
 
 
-cute foto
-![photo_5224554465925916723_m](https://github.com/user-attachments/assets/b844e9c8-4851-4edd-a9b9-78b8b36816fe)
+cute foto.
+![OrQIK5vQ7ye32yQnWuIw1k5GFWV4Drd9G024n1SRzF7JYUkN_7CxX-b7ZQN-N5TE2GMZx_kJtcn_xyCLirFXMaOB](https://github.com/user-attachments/assets/abd95c8e-8cd5-435a-9adc-40110f8868d7)
+
 
 
 
