@@ -1,5 +1,5 @@
 ## 
-НЕ ПОКУПАЙТЕ PvZ: REPLANTED, ОНО НЕ ЗАСЛУЖИВАЕТ ТОГО! EA КРУГЛОЛИЦЫЙ ПИЗДОХРЯК, НЕ ИСПОЛЬЗУЙ AI
+ghbdtn
 ---------------------------------
 old readme is sucks, 
 no more old readme
